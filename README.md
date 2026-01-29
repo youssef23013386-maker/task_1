@@ -1,4 +1,5 @@
 # task_1
 
-<img width="576" height="1280" alt="image" src="https://github.com/user-attachments/assets/ac5fe541-5027-41b4-b164-cffe5de0ca52" />
+![WhatsApp Image 2026-01-29 at 8 20 08 PM](https://github.com/user-attachments/assets/4e8fc8ed-e55e-40ca-8a8d-386175905dc1)
+
 
